@@ -1,0 +1,1 @@
+# ridvancekmez.github.io
